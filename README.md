@@ -1,6 +1,6 @@
 菲律宾本地通道 Gcash 原生 秒回
 通道品牌名称：币付 
-加入频道 https://t.me/GcashNative 联系开户 @Bifuapp
+联系开户 [@Bifuapp](https://t.me/Bifuapp)
 产    品：菲律宾原生GCASH  
 通道成功率:100%
 代收費率：4.5%
